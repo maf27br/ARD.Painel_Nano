@@ -1,0 +1,1 @@
+# ARD.Painel_Nano
